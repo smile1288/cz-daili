@@ -1,5 +1,5 @@
 # 69折话费电费|信用卡、各类网贷6折代还|招代理！！！
-# [需要短信轰炸和社工库查档请点击](https://github.com/La-Jason/SMS-bombing)
+# [需要短信轰炸和社工库查档请点击](https://github.com/La-Jason/SMS-bombing/blob/main/README.md)
 # 注册后可以直接进群！注册后可以直接进群！[注册链接](https://blhc.xyz/#/pages/index/user?promoCode=fb45b4)
 
 ## 更新通知栏 [联系我](https://t.me/La_Jason123)
