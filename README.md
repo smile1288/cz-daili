@@ -251,6 +251,6 @@
 ## 梯子VPN，苹果ID及各大官网
 - [梯子机场推荐](https://sakura-cat1.com/user/#/register?code=cu1chOnn)
 - [苹果外区ID（请用完即退）](https://apple.fxtos.com/)
-- [欧意官网](https://chouyi.website/join/85434771)
-- [火币官网](https://www.htx.co.nz/invite/zh-cn/1f?invite_code=4ep99223)
-- [币安官网](https://www.marketwebb.com/referral/earn-together/refertoearn2000usdc/claim?hl=zh-CN&ref=GRO_14352_U7R6Y)
+- [欧意官网](https://ouxyi.link/ul/YbU25D?channelId=85434771)
+- [火币官网](https://www.htx.com.de/invite/zh-cn/1f?invite_code=4ep99223)
+- [币安官网](https://www.marketwebb.io/referral/earn-together/refertoearn2000usdc/claim?hl=zh-CN&ref=GRO_14352_U7R6Y&utm_source=referralmode)
